@@ -1,1 +1,0 @@
-# sesi5_reskhimelanda
